@@ -1,2 +1,0 @@
-# webgabutdoang
-Untuk kamu..
